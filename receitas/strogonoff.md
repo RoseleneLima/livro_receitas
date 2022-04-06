@@ -1,4 +1,4 @@
-# Strogonoff de Frango
+# Strogonoff de Carne
 
 ## Ingredientes
 
